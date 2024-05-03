@@ -51,10 +51,17 @@
 
 所谓中级的含义：用户众多，稳定，高速，支持地区多，性价比高，敏感时期，特殊时期偶有影响但几乎不影响正常使用。
 
+![769263F0](https://github.com/lup319/lup319.github.io/assets/54000547/f9d941f7-7e79-455c-8c4b-8580e140b442)
+![76924C03](https://github.com/lup319/lup319.github.io/assets/54000547/929ed072-5117-4981-a291-236feacf0761)
+0）Frost不错 https://www.frostboutiques.top/#/register?code=XSWmt6KF
+6.00 / 80 GB       13.00 / 88 GB实际时长一年
+
 1）NiceDuck
 
        多入口隧道中转SS线路，国内多入口，高SLA保证高端大机场，低价格，高品质，速度拉满，有 "流量包" 套餐。节点包括：港，台，日，美，韩，新加坡等。全节点流媒体支持，包括ChatGPT/Netfilx/Disney+/Dazn/动画疯/Abema/DMM等，套餐可低至每月 6 块 6 毛 6。
 👉 套餐最低价6.6元50G/月，12元100G/月。
+
+
 👉 五一劳动节 9 折优惠码：duck-9 , 限月付、季付、半年付使用. 年付 8 折优惠码：duck-8 ， 优惠到 5月21号 截止
 
 👉 https://bit.ly/3ujlpMM
